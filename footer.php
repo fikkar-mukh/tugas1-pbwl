@@ -1,0 +1,1 @@
+Copyright 2019 &copy; Programmed By Fikkar Mukhtar Taufiqy
